@@ -104,4 +104,6 @@ Se você tiver alguma dúvida ou sugestão, por favor, abra uma issue no GitHub.
 
 ---
 
-Desenvolvido com ❤️ por [Seu Nome]
+Desenvolvido com ❤️ por Lucas Vencio (ou Lukeshinypaw 🐾🖤🧡💙🤍)
+
+##  \OwO/
